@@ -78,6 +78,6 @@ you've just cloned!!
 
 
 ## Group
-* [`WhatsApp`](Error waiting)
+* [`WhatsApp`](08165466368)
 ### Donate
-* [`Saweria`](https://saweria.co/donate/agung1)
+* [`VIPUL`](08165466368)
